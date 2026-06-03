@@ -1,1 +1,1 @@
-# CybersecurityNovelSeries_GHOST-DOMAIN_zh-tw
+資安小說系列一《鬼域根機》
